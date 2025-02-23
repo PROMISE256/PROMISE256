@@ -1,5 +1,5 @@
 - 👋 Hi, I’m PROMISE ARCHANGEL
-- 👀 I’m interested in Software Engineer, cloud computing and data anylsis
+- 👀 I’m interested in Software Engineering, cloud computing and data anylsis
 - 🌱 I’m currently learning and skilling
 - 💞️ I’m looking to collaborate on open source projects
 - 📫 How to reach me email archangelpromise@gmail.com and whatsApp +256785622940
